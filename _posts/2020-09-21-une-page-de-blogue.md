@@ -1,4 +1,4 @@
-# _What-ta-ta-TOW!
+# _What-ta-ta-TOW!_
 
 ### How about that?
 
@@ -10,6 +10,6 @@
 1. D'une langueur
 1. Monotone
 
-## _Et c'était un grand bateau ivre, à ne pas t'oublier!
+## _Et c'était un grand bateau ivre, à ne pas t'oublier!_
 
 - Mom Bouch

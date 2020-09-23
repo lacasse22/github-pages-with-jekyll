@@ -1,4 +1,4 @@
-# Welcome to my sTEF blog
+Welcome to my sTEF blog
 
 I'm glad you are here. I plan to talk about Corona2020 
 like you've never heard of. Believe in Santa Claus? Good for youuuuu, cause we have what you need here.
